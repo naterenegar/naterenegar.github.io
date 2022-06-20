@@ -20,4 +20,4 @@ Off to damage someone elses daughter\
 \
 And so I go, scorching the earth\
 Devil clutching optic nerves\
-like a cowboy clutching reins\
+like a cowboy clutching reins
